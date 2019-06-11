@@ -1,3 +1,0 @@
-"# CODEDAEMON" 
-"# CODEDAEMON-" 
-"# CODEDAEMON-" 
